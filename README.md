@@ -13,3 +13,14 @@
 
    <div align="center">
 ══════════════════════════════
+   <div align="center">
+     
+[strawpage](https://vvhiteferarri.straw.page/)    ♫    [pronouns page](https://pronouns.cc/@loveforvinnie)    ♪    [atabook](https://loveforvinnie.atabook.org/) 
+<div align="center">
+══════════════════════════════
+  <div align="center">
+𝑨𝒏𝒅 𝒅𝒐𝒏'𝒕 𝒚𝒐𝒖 𝒎𝒆𝒏𝒕𝒊𝒐𝒏 𝒂𝒍𝒍 𝒕𝒉𝒆 𝒊𝒏𝒄𝒉𝒆𝒔
+    <div align="center">
+𝑻𝒉𝒂𝒕 𝒂𝒓𝒆 𝒔𝒄𝒓𝒂𝒑𝒆𝒅 𝒐𝒏 𝒕𝒉𝒆 𝒅𝒐𝒐𝒓 𝒇𝒓𝒂𝒎𝒆
+      <div align="center">
+𝑾𝒆 𝒂𝒍𝒍 𝒌𝒏𝒐𝒘 𝒚𝒐𝒖 𝒕𝒊𝒑𝒕𝒐𝒆𝒅 𝒖𝒑 𝒕𝒐 𝟒'𝟏" 𝒃𝒂𝒄𝒌 𝒊𝒏 '𝟎𝟖
