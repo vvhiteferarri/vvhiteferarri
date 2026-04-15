@@ -9,13 +9,14 @@
   
 <div align="center">
   
-<img src="https://www.image2url.com/r2/default/images/1776241535979-c203b56d-fd8c-4281-81a4-242a216e3610.jpg" alt="image" />
+<img width="736" height="414" alt="17762427840912356800318221398863" src="https://github.com/user-attachments/assets/c8aaa821-af1d-4cb0-8504-3e83a5775681" />
+
 
    <div align="center">
 ══════════════════════════════
    <div align="center">
      
-[strawpage](https://vvhiteferarri.straw.page/)    ♫    [pronouns page](https://pronouns.cc/@loveforvinnie)    ♪    [atabook](https://loveforvinnie.atabook.org/) 
+[strawpage](https://vvhiteferarri.straw.page/)    𓏴    [pronouns page](https://pronouns.cc/@loveforvinnie)    𓏴    [atabook](https://loveforvinnie.atabook.org/) 
 <div align="center">
 ══════════════════════════════
   <div align="center">
