@@ -18,11 +18,9 @@
      
 [strawpage](https://vvhiteferarri.straw.page/)    𓏴    [pronouns page](https://pronouns.cc/@loveforvinnie)    𓏴    [atabook](https://loveforvinnie.atabook.org/) 
 <div align="center">
-  
 ══════════════════════════════
 
   <div align="center">
-    
 𝑨𝒏𝒅 𝒅𝒐𝒏'𝒕 𝒚𝒐𝒖 𝒎𝒆𝒏𝒕𝒊𝒐𝒏 𝒂𝒍𝒍 𝒕𝒉𝒆 𝒊𝒏𝒄𝒉𝒆𝒔
     <div align="center">
 𝑻𝒉𝒂𝒕 𝒂𝒓𝒆 𝒔𝒄𝒓𝒂𝒑𝒆𝒅 𝒐𝒏 𝒕𝒉𝒆 𝒅𝒐𝒐𝒓 𝒇𝒓𝒂𝒎𝒆
