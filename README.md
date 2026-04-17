@@ -16,7 +16,7 @@
 ══════════════════════════════
    <div align="center">
      
-[strawpage](https://vvhiteferarri.straw.page/)    𓏴    [pronouns page](https://pronouns.cc/@loveforvinnie)    𓏴    [atabook](https://loveforvinnie.atabook.org/) <div align="center">
+[strawpage](https://vvhiteferarri.straw.page/)    𓏴    [pronouns page](https://pronouns.cc/@loveforvinnie)    𓏴    [atabook](https://vvhiteferarri.atabook.org/) <div align="center">
 ══════════════════════════════
 
   <div align="center">
